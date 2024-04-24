@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @svau82-ea0
-- 👀 I’m interested in conputing
+- 👀 I’m interested in computing
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me email me on vaughanscott77@gmail.com
